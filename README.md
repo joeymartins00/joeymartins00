@@ -1,5 +1,5 @@
 # 💫 About Me:
-⚡Olá me chamo Joceyr, seja bem-vindo ao meu GitHub!:skull_and_crossbones:
+⚡Olá me chamo Joceyr, seja bem-vindo ao meu GitHub!
 
 
 ## 🌐 Socials:
